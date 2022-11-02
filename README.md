@@ -14,3 +14,4 @@ other things i enjoy dcverse comics movies nd films sitcoms Legos fashion coding
 
 CENTI LINKS(＾ω＾) :  https://open.spotify.com/user/k2m3m782lwamvpudutj067y9z ; https://www.instagram.com/centirules/ ; https://listography.com/centipedes
 
+CENTIS SILLIES(´｡• ᵕ •｡`) ♡ : philip  kymp  sena

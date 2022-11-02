@@ -1,4 +1,4 @@
- https://pronouny.xyz/u/lego ⚣ 🏳️‍⚧️ agender nonbinary boyflux demiboy +xenogenders
+ https://pronouny.xyz/u/lego abrosexual ⚣ 🏳️‍⚧️ agender nonbinary boyflux demiboy +xenogenders
 
 hi im (Centi)pede, alys, millipede, &/or Victoria im black im a #07 i LOVE anything related to music. huge huge long term special interest since like early 5th-7grade
 

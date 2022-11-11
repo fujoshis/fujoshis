@@ -1,7 +1,6 @@
 ‎
+![](https://i.pinimg.com/564x/0e/83/0e/0e830e07cf4251852723c6091bfc37dd.jpg)
 
 ‎  ‎ 🪓[its thing/any & neoprns](https://pronouny.xyz/u/lego) ![](https://pixel.crd.co/assets/images/gallery01/1cbcefba.gif?v=f96483b1) abrosexual **⚣** trans agender nonbinary boyflux demiboy +xenogenders
-
-‎  ‎ ♡(>ᴗ•) hi im (***Centi***)pede, alys, millipede, &/or Victoria im afro-latina (Haitian) i LOVE anything related to music im super hyperfixd on it other things i enjoy r dcverse(spef batverse and tt+ ttGo) comics collections visuals of animals & bugs movies nd films sitcoms Legos fashion coding/HTML CSS ... JavaScript & more 
 
 ‎  ‎ 🪓CENTI LINKS(＾ω＾) : ‎ [spotify](https://open.spotify.com/user/k2m3m782lwamvpudutj067y9z) ‎ ; ‎ [public insta spam](https://www.instagram.com/centirules/) ‎ ; ‎ [extended interests](https://listography.com/centipedes)

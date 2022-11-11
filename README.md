@@ -1,5 +1,9 @@
 ‎ 
 
+‎ 
+
+![](https://centimetal.carrd.co/assets/images/gallery02/88379ee1.jpg?v=b41e5e05)
+
 ‎  ‎ 🪓its thing/any [neos](https://pronouny.xyz/u/lego) ![](https://pixel.crd.co/assets/images/gallery01/1cbcefba.gif?v=f96483b1) abrosexual **⚣** trans agender nonbinary boyflux demiboy +xenogenders ![](https://pixel.crd.co/assets/images/gallery04/76f7426c.gif?v=f96483b1)
 
 ‎  ‎  ‎ ![](https://pixel.crd.co/assets/images/gallery01/bffffc85.gif?v=f96483b1) ‎ hii! im (***Centi***)pede, Alys, **Milli**pede, &/or Victoria! n_n slf dxed 'tism ![](https://centi.carrd.co/assets/images/gallery01/b0579ea4.png?v=7a6f08e8) and i am hyperfixated on listening to music ♪ nd playign ponytown! my other interests r dcverse, gameplays/walkthroughs, visuals of animals nd bugs of all kinds, xenogdner identitieees Legos(i only own one...) and Moveis/flim stuff!there is way more interests (and more to come) but it is better to interact with me more in depth to know more!

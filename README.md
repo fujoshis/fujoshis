@@ -1,9 +1,8 @@
 ‎ 
 
-![](https://centimetal.carrd.co/assets/images/gallery02/88379ee1.jpg?v=b41e5e05) ![](https://centi.carrd.co/assets/images/gallery13/318a397e.jpg?v=ede49fbe)
+![](https://centimetal.carrd.co/assets/images/gallery02/88379ee1.jpg?v=b41e5e05) ![](https://centi.carrd.co/assets/images/gallery13/318a397e.jpg?v=ede49fbe)![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRx-IaaMbEf2OrPDC3JdjJOw0UoZUSJcmoE4zH4PUV3mQ&s)
 
-‎  ‎ 🪓its thing/any [neos](https://pronouny.xyz/u/lego) ![](https://pixel.crd.co/assets/images/gallery01/1cbcefba.gif?v=f96483b1) abrosexual **⚣** trans agender nonbinary boyflux demiboy +xenogenders ![](https://pixel.crd.co/assets/images/gallery04/76f7426c.gif?v=f96483b1)
+‎  ‎ 🪓[its thing/any neos](https://pronouny.xyz/u/lego) abrosexual **⚣** trans agender nonbinary boyflux demiboy +xenogenders
 
-‎  ‎  ‎ ![](https://pixel.crd.co/assets/images/gallery01/bffffc85.gif?v=f96483b1) ‎ hii! im (***Centi***)pede, Alys, **Milli**pede, &/or Victoria! n_n slf dxed 'tism and i am hyperfixated on listening to music ♪ nd playign ponytown! my other interests r dcverse, gameplays/walkthroughs, visuals of animals nd bugs of all kinds, xenogdner identitieees Legos(i only own one...) and Moveis/flim stuff!there is way more interests (and more to come) but it is better to interact with me more in depth to know more!
 
-‎  ‎ 🪓CENTI LINKS(＾ω＾) : ‎ [SWEET jams](https://open.spotify.com/user/k2m3m782lwamvpudutj067y9z) ‎ ; ‎ [public insta spam](https://www.instagram.com/centirules/) ‎ ; ‎ [extended interests](https://listography.com/centipedes) ‎ ; ‎ [my creatures](https://rentry.co/lecenti)
+‎  ‎ 🪓CENTI LINKS(＾ω＾) : ‎ [SWEET jams](https://open.spotify.com/user/k2m3m782lwamvpudutj067y9z) ‎ ; ‎ [public insta spam](https://www.instagram.com/centirules/) ‎ ; ‎ [extended interests](https://listography.com/centipedes) ‎ ; ‎ [more about centi](https://rentry.co/fujoshis)

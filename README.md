@@ -4,6 +4,4 @@
 
 [its thing/any neos](https://pronouny.xyz/u/lego) abrosexual **⚣** trans agender nonbinary boyflux demiboy +xenogenders [rentry](https://rentry.co/fujoshis)
 
-ilovemen i LOOOOOOOOOOOOOOOOVE MEN.
-
  [spotify](https://open.spotify.com/user/k2m3m782lwamvpudutj067y9z)gjhk)

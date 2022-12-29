@@ -1,4 +1,2 @@
+centi's [rentry](https://rentry.co/centi)
 
-
-[rentry](https://rentry.co/centi)
-my twt acc got suspended

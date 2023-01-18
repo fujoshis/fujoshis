@@ -1,4 +1,2 @@
-centi's [rentry](https://rentry.co/centi) ![](https://autism.crd.co/assets/images/gallery19/bc2b1448.gif?v=e4decef7)
- 
- [cbox](https://my.cbox.ws/mettaton) [rentry 2](https://rentry.co/unikittys)
+**centi** [it&thing](https://en.pronouns.page/@lucitor) haitian/afrolatina 2007 happy self diagnosed autistic! :-) [my friends](http://txti.es/ilys)
 
